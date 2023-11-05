@@ -5,7 +5,7 @@
 
 - ⚡ Fun fact **I love to laugh**
 
-<h3 align="left">Connect with me:</h3>
+
 <p align="left">
 </p>
 
